@@ -6,4 +6,4 @@ you can see the project exe demo from here https://drive.google.com/drive/folder
 
 
 
-and you can see the project vedio demo from here https://www.facebook.com/kawthsoranono/videos/1005126741214886
+and you can see the project video demo from here https://www.facebook.com/kawthsoranono/videos/1005126741214886
